@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ShadowVAS
+- @ShadowVAS ^-^
 - Currently I'm a Co-Owner of VAS who creates games
 - 📫 How to reach me email : shadow.errror44@gmail.com
   
